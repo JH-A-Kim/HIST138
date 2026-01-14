@@ -112,6 +112,10 @@ And not just an act that occurs during war.
 - Definition does not define if it has to be a state or not
 - as long as intent and annihilation occur. It is ball.
 
+### One Thing I am Nervous about and one thing I am excited about:
+- I am nervous about about learning about different Genocides because there is a lot of horrid things that have happened throughout the course of history. Being peripherally aware of them is not the same as studying about them and thinking deeply about them
+- On the other hand I am excited to be presented the information about genocide and the way that different peoples and organizations have commited large scale acts of horror. Helps to understand to the extent that people can do things to achieve a goal.
+
 ## Textbooks
 - Jones Text free on SFU library Need the more recent version
 
