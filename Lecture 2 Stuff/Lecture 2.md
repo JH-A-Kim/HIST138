@@ -123,7 +123,7 @@ Endlosung = German/Nazi
 - Complete Ruthlessness
 - Very close to eradicating Jews
 - Germans took 5.7 million POW's from 1841 to end of war
-- 930,000 POW's remained in militart prison camps in January 1945
+- 930,000 POW's remained in military prison camps in January 1945
 - Half a million escaped or freed by Red Army
 - Many starved and killed between 2 and 3 million intentionally
 - Deliberate Policy of Annihilation
@@ -176,3 +176,16 @@ Reason
 - Justice is tricky here.
 
 ## Many Nuremburg Trials
+
+
+# Memorandum of the 10 commandments statement 
+- Tutorial Presentation
+- Research
+- Centuries of Genocide Book
+- Identify who is the Author, When was the source written, topic does it connect to our course.
+- Basic information of Doc
+- at least 2 questions. 
+1. Are there terms we should define or discuss? (Origin of word, how it has been used)
+2. Does the source confirm or challenge our readings?
+3. Are there factual or interpretive errors in the source?
+4. What did you notice or something that surprised you?
