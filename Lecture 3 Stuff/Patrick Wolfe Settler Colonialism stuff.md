@@ -5,6 +5,7 @@
 Land is a contest for life!
 
 ## Logic of elimination
+- To secure use of the land removal of previous owners of the land is necessart either through assimilation, expulsion, or destruction
 
 ## Settle Colonialism is inherently eliminatory but not invariably genocidal
 

@@ -189,3 +189,9 @@ Reason
 2. Does the source confirm or challenge our readings?
 3. Are there factual or interpretive errors in the source?
 4. What did you notice or something that surprised you?
+
+
+
+## Paradigmatic Genocide
+- The model for all other genocides
+- Sets a mold for all other case studies 
