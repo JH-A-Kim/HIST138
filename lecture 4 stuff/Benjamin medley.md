@@ -1,7 +1,9 @@
 # Summary of Benjamin Madley’s Assessment of the Yuki Genocide
+
 Benjamin Madley argues that the catastrophic decline of the Yuki Indian population between 1854 and 1864 was a case of genocide sanctioned by the State of California and enabled by federal neglect. He challenges the traditional historical narrative that disease was the primary cause of Native American depopulation, showing instead that the Yuki were victims of a deliberate campaign of extermination
 
 ## Defining Genocide via the 1948 UN Convention
+
 Madley uses the 1948 United Nations Genocide Convention as an internationally recognized rubric to evaluate the Yuki case.
 
 
@@ -14,6 +16,7 @@ Madley uses the 1948 United Nations Genocide Convention as an internationally re
 - Perpetrator Responsibility: Madley asserts that while vigilantes did much of the killing, state and federal officials are culpable because they knew their actions would lead to the group's destruction
 
 ## State-Sponsored Militia Campaigns
+
 The genocide transitioned from informal settler violence to organized, state-funded military operations.
 
 
@@ -29,6 +32,7 @@ Legislative Sanction: Despite public criticism of the "Mendocino War," the Calif
 Frequency of Attacks: Settler Dryden Lacock testified that expeditions averaged 50 to 60 kills per trip, with some weeks requiring two or three outings.
 
 ## Legalized Kidnapping and Servitude
+
 State laws created a legal framework for the abduction of Yuki people, which served both as a labor source and a tool for cultural destruction.
 
 
@@ -91,6 +95,7 @@ Commercial Abduction: Explorers like Pierce Asbill kidnapped at least 35 Yuki wo
 Demographic Impact: These abductions separated men and women during peak reproductive years, accelerating the population's decline.
 
 ## Neglect and Mortality on the Reservation
+
 For the Yuki forced onto the Round Valley Reservation, conditions were often lethal due to willful official neglect.
 
 
@@ -106,6 +111,7 @@ Lethal Labor: Reservation employees forced Yuki to work as "packers," carrying 5
 Embezzlement: Superintendent Thomas Henley and his subordinates were found to have embezzled funds meant for Indian rations and used reservation land for their own private cattle.
 
 ## Challenging the "Disease" Thesis
+
 Madley argues that the Yuki case contradicts the theory that disease was the primary driver of population decline in California.
 
 
