@@ -201,3 +201,29 @@ TLDR
 
 ## Administrative Chain of Command.
 
+- Whole ass ottoman state was doing it 
+- Used literally every component of the state.
+
+## State Denial and Accountability.
+
+- State denied it ever happened. 
+- They argued it was justified wartime countermeasures.
+- They assasinated journalist Hrant Dink in 1915
+
+## Constantinople
+- 1915 round up of Armenian Notables in Constantinople who were subsequently murdered or worked to death.
+
+## Gendercide.
+- Mass killings of military aged men to prevent resistance and just executing them.
+
+## Great Unweaving. 
+- Long term disintegration of the multi-ethnic ottoman empire to a mono ethnic nationalist state
+
+## Turkification
+- Assimilation but only of women and children 
+- Survivors were scattered and forced into becoming turks.
+
+## Precursor stuff the trial run testing run
+- 1914 ethnic cleansing of Greeks along the Aegean Littoral which US Ambassador Morgenthau described as the successful model later applied to other races. 
+
+## Talat Enver and Jemal
