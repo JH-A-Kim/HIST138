@@ -227,3 +227,26 @@ TLDR
 - 1914 ethnic cleansing of Greeks along the Aegean Littoral which US Ambassador Morgenthau described as the successful model later applied to other races. 
 
 ## Talat Enver and Jemal
+
+
+
+# Week 10 Colonization and De-Colonization of Africa
+
+## Hamitic Hypothesis
+- Racist Colonial Theory claiming Tutsis were superior non-native caucasion descendants of the biblical ham. 
+- Concocted by Roman Catholic missionaris and Belgian colonialists this ideology asserted that the Tutsi minority (15%) was intellectually superior to the "Bantu" Hutu majority (85%) By institutionalizing this through identiy cards in the 1920s the Belgians transformed vocational roles into a horrible racial caste system. 
+- Belgian issuance of ethnic identity cards (1926-1932) solidified this cleavage which Hutu extremists later used in 1994 to identify victims.
+- Because of this Tutsi were seen as natural rulers and Hutus as an inferior caste
+## The Preventable Genocide Thesis 
+- consensus that both genocides could have been stopped with modest timely international military intervention
+- Highlights the failure of the "bystander" international community. Experts argue that a force of approximately 5000 well equipped troops with a strong mandate could have halted the Rwandan slaughter.
+Like in Bosnia where the refusal of using NATO air power early on allowed Serbian Forces to gain control.
+- UNAMIR Mission in Rwanda was restricted to peacekeeping rather than peace enforcement making it so the forces of General Dallaire kinda could not do much as the killing actually began
+
+## Ethnic Identiy Cards
+- Belgian authorities gave out identity cards to classify Rwandans by Ethnicity. 
+- Hutu and Tutsi split into groups using these cards 
+- In 1944 genocide these cards became instrument at roadblocks in urban areas to identify and kill Tutsis
+
+## Preventage Genocide
+- Was not due to ancient tribal hatred but could have been easilty stopped by external intervention. 
