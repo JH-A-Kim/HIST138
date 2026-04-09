@@ -250,3 +250,59 @@ Like in Bosnia where the refusal of using NATO air power early on allowed Serbia
 
 ## Preventage Genocide
 - Was not due to ancient tribal hatred but could have been easilty stopped by external intervention. 
+- Military experts argue that 5000 people with a peace ENFORCEMENT mandate could have stability the country. 
+- Genocide Fax sent by General Dallaire in 1994 warned the UN of the plot, but he was ordered to take no action. 
+
+## The Akazu (The Little House)
+- Extremist Inner circle of Hutu people from the northwestern Rwanda who controlled the state during the Habyarimana Regime
+- Also known as Le Clan De Madame because it was centered around the presidents wife. Lots of funny state corruption to distract from regional and class divisions among Hutus. They masterminded the strategy for genocide to maintain their power. 
+- They controlled the RTLM radio station to disseminate hate propaganda. 
+- Shadow government the little house was. 
+
+## Test massacres or rehearsals 
+- Smaller scale killings of Tutsis between 1990 and 1994 
+- was a perfect way to test efficiency of mobs, militias, and the military and local officials told citizens that this was a obligation
+- Massacres in the Kiblira commune occured in 1990, 1992, 1993 establishing the pattern for the 1944 genocide. 
+
+## Hutu Power
+- Ideology in total Hutu Solidarity and extermination of the Tutsi.
+- Triggered by 1993 asassination of Burundi first Hutu president by Tutsi soldiers. This pushed it to show the people that powersharing was impossible and they must have ethnic solidarity.
+
+## RTLM Radio
+- Private radio station used for dehumanizing Tutsi and coordinating genocidal violence.
+- RTLM spread propaganda to basically label Tutsis as cockroaches and Aliens. And then it moved to telling Hutu people to kill or be killed.
+- Holy went from man these people suck to straight up kill them.
+
+## Arusha Accords.
+
+- 1993 peace agreement aimed at ending the civil war by creating a shared government between the Hutu regime and the RPF
+- It was supposed to be a peace measure but it further pushed the Hutu extremists to push even further for genocide because they did not want to share. 
+- UN Assistance Mission for Rwanda was made to oversee it but did not really help UNAMIR.
+
+## Gacaca Courts. 
+- Community judicial system used post genocide to try over a million suspects and promote local reconciliation.
+- This was made to clear a whole big ass back log of 130k prisoners using over 170k local judges to try them. 
+- 1.5 million cases processed this way
+
+## ICTR International Criminal Tribunal for Rwanda
+- UN Tribunal for prosecuting the high level masterminds of the genocide. 
+- ICTR established legal precedent for defining rape as a crime of genocide and convicting government leaders and media owners for their roles. 
+- Convicted former prime minister Jean Kambanda the first time a head of government was convicted for genocide. 
+
+## High Level Overview
+- Beligan and German Social Identity cards layed the groundwork for Tutsi and Hutu resentment
+- in 1959-1962 as independence neared the Hutu majority seized power with Belgian support forcing 300k Tutsi into exile.
+- Civil war happened in 1990-94 where the descendants of Tutsi exiles invaded giving Hutu a common enemy to unite against they used the war as a pretest to unleash all the anti Tutsi propaganda ie through the RTLM radio. and Train the Interahamwe as a militia to fight against them. 
+
+- But it all went crazy with the President's plane being shot down and that triggered the genocide to begin. Coordinated by the government and fueld by RTLM Radio
+- Despite warnings, the UN Security Council reduced the peacekeeping force by 90% during the peak of the killing
+- After the RPF the Tutsi eventually won the civil war and ended the genocide however this led to over a million Hutu running away leading to decades of Great War in Central Africa. 
+
+Why did the Belgians do this?
+- they claimed that Tutsi were semi white basically of the biblical figure ham
+- The Belgians used it for colonial Control
+- They basically used the Tutsi as a proxy to manage the country without getting their hands dirty
+- By doing this they ensured the Tutsi loyalties
+- and deflected harsh treatment and resentment away from the Belgians and straight at the Tutsi. 
+- Basically it just made it easier for the Belgians to control Rwanda. IE power play 
+
