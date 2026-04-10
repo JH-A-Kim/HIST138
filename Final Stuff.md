@@ -306,3 +306,4 @@ Why did the Belgians do this?
 - and deflected harsh treatment and resentment away from the Belgians and straight at the Tutsi. 
 - Basically it just made it easier for the Belgians to control Rwanda. IE power play 
 
+441 - 
