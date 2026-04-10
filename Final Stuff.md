@@ -411,3 +411,9 @@ Why did the Belgians do this?
 - Genocide as a term was coined by Lemkin in 1943 during the Holocaust. Genocide studies as a field did not truly become bigger until the late 1970s and 80s because of Holocaust studies. 
 - Gender became a part of things during 1980s when people started challenging this gender neutral narrative of the Holocaust. There was some hostility that was holding it back because some thought it might trivialize the crime however the reports of mass rape in Bosnia and Rwanda in the 90s forced the international community and academics to acknowledge that gender was a big component of genocide and should not be ignored. 
 - And now the field is expanding to include men in the field as gendered victims and the role of ideal masculinity in driving perpetrators like family protector and provider. and targeting those aspects to weaken a people. and now studies are focusing on the intersectionality og gender with race, religion and class. 
+
+
+
+# Later Tasks for finishing:
+- [ ] Read the gender stuff from week 11 for more information. 
+- [ ] Future task 
