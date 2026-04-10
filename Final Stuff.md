@@ -237,6 +237,7 @@ TLDR
 - Concocted by Roman Catholic missionaris and Belgian colonialists this ideology asserted that the Tutsi minority (15%) was intellectually superior to the "Bantu" Hutu majority (85%) By institutionalizing this through identiy cards in the 1920s the Belgians transformed vocational roles into a horrible racial caste system. 
 - Belgian issuance of ethnic identity cards (1926-1932) solidified this cleavage which Hutu extremists later used in 1994 to identify victims.
 - Because of this Tutsi were seen as natural rulers and Hutus as an inferior caste
+- 1994 genocide the Hutu would throw Tutsi corpses into the river to symbolically send them back to their alleged foreign origins
 ## The Preventable Genocide Thesis 
 - consensus that both genocides could have been stopped with modest timely international military intervention
 - Highlights the failure of the "bystander" international community. Experts argue that a force of approximately 5000 well equipped troops with a strong mandate could have halted the Rwandan slaughter.
@@ -306,4 +307,107 @@ Why did the Belgians do this?
 - and deflected harsh treatment and resentment away from the Belgians and straight at the Tutsi. 
 - Basically it just made it easier for the Belgians to control Rwanda. IE power play 
 
-441 - 
+## Ethnic Capture of the State 
+- Tutsi basically controlled the entire nation in all roles of power. To control the Hutu people
+
+## Mutually Constitutive Crises
+- Regional Interdependence of Conflicts where violence in one state would fuel violence in another
+- because of flow between differeent regions that meant things happening in one place would create ripples in other regions of reciprocal genocide
+- 1972 and 1993 masssacres of Hutus in Burundi radicalized Hutus in Rwanda
+
+## Degenerate War
+- Civilians being an active target
+- Coined by Martin Shaw it describes wars where leaders decide that looting and killing civilians is more profitable than regular military stuff
+- Second Congo War where 122 different milita groups operated by terrorizing the local population to control resource-rich areas. 
+
+## Genocide by Attrition
+- Killing another group by destroying means of survival rather than through direct killing
+- burning farms, polluting wells, blocking humanitarian aid, etc
+- Sudanese Government Campaign in the Nuba Mountains where they relocated a third of the population to "Peace Camps" and cut off all trade and medicine to rebel-held areas. Basically let the environment do their job for them. 
+
+## Eliticide
+- destruction of intellectual and political leadership of a group
+- 1972 eliticide in Burundi where the Tutsi dominated army targeted any Hutu who could write his own name or had enough money to afford a corrugated iron roof.
+- You have any smarts or money? You dead. 
+
+## Genocide of the Camps.
+
+- 1996-1997 campaign by the Rwandan Patriotic Army (RPA) against Hutu refugees in the DRC
+- Vengeful pursuit of Hutu refugees deeper into the Congo Jungle after the RPA cleared border camps, resulting in 230k deaths from massacre and exposure. 
+
+## Gendercide
+- 1972 Burundian Genocide where educated Hutu Males were so targeted so much that no educated male Hutus remained alive
+
+## Double Genocide Thesis
+- Denialist discourse that claims the RPF and Hutu powers were equally genocidal in 1994 to create a moral equivalence. 
+- Argument often inflates the RPA atrocities while downplaying the planned systematic Hutu led genocide of Tutsis.
+- French President Francois Mitterand used this framing to avoid acknowledgin the specific targeting of Tutsis during the genocide. 
+
+## Gacaca 
+- ICTR only focused on justice of high level leaders and the mass leaft to gacaca system
+
+
+## High level overview 
+- Colonial bedrock of the caste system of Tutsi being related to white people created the beginning of the conflicts through the Hamitic Hypothesis. 
+- When independence was nearing the Belgians started to support the Hutu and so in Rwanda the Hutu Revolution forced Tutsis into exile but in Burundi the Tutsi regained control to prevent a Rwanda situation. 
+
+- 1994 Rwandan Genocide triggered by the downing of President's plane Hutu extremists mobilized the civilian popultion into a hurricane of death where 1 million Tutsis and moderate Hutu;s were murdered in just 12 weeks while international community just stoody by and watched. 
+- The defeat of the Hutu Government sent 2 million Hutus into the DRC and the new Tutsi lead Rwandan Government invaded the DRC to destroy these camps eventually involving nine african nations in a struggle for natural resources and territory. 
+
+# Week 11 Gender and Genocide. 
+
+## Gender as an analytical Lens
+- Use social and cultural ideas of masculinity and feminity to better understand the processes and experiences and aftermaths of genocide.
+- Rather than just adding women to the narrative this framework examines how gender norms and identities such as the role of men as providers or women as mothers of the nation inform perpetrator motivations, victim responses and the sepcific forms of violence used. 
+- For example jewish men in Nazi Germany felt a specifc sense of manly failure because they could not fulfill their traditional roles as protectors of their families. 
+
+## Modernity and Genocide
+- Theory that 20th century genocides are unique products of modern technology, state power, and mass mobilization
+- Modern Genocides use advanced techniques for surveillance, new technologies of warfare and revolutionary ideologies that make specific populations seem like weeds to be removed for the sake of a better society. 
+- Nazi state's use of biologized ethnicity and state run administrative systems to identify and eliminate racially undesirable groups. 
+- TLDR genocide now super fast, and efficient systems are things that characterize modern genocide.
+
+## Gendercide
+- Mass killing of specific genders who are often battle aged men as the primary first step to group annihilation. 
+- Men are often targeted because they are the potential militart resistance of a group.
+- In both Rwanda and the Democractic Republic of the Congo men and boys were targeted for direct killing because of their sex. 
+
+## Sexiaul Violence as a Genocidal Weapon
+- Use of mass rape and sexual torture not as an incidental by product of war but as a deliberate tool to destroy a groups social and biological foundations. 
+- Sexual violence is used to tear the family and community ties apart through trauma and forced impregnation effectivly altering the future biological composition of the group. 
+- During the Rwandan Genocide rape was used as a psychosocial and economic weapon where men claimed raped women as war booty to acquire their land. 
+
+- TLDR destroy both the body and the mind and the community biology. 
+
+## Biologization of Identity. 
+- Modern shift toward viewing things like ethnicity race and nationality as things that are only the result of your biology. IE your identity is basically made up of your biology
+- This changed womens role from regular people into the mothers of nations because they create the identity of the people. Therefore they became targets of genocidal violence as they continue to create this targeted group mothers of that group and identity. 
+
+## Female Complicity and Agency 
+- This recognizes that women can be perpetrators, bystanders, and active supporters of genocide rather than just passive victims.
+- While most of the time direct killers are male women have also contributed to genocide through things like looting, exposing victims to killers and promoting genocidal ideologies.
+- In Rwanda some ordinary women were identifying Tutsis to be killed or engaged in looting.
+
+## International Legal Recognition of Rape
+- Evolution of international law to recognize mass rape as a core act of genocide rather than just a side effect of conflict. 
+- 1948 UN definitions ommitted sexual violence but the Rwanda and Yugoslavia Tribunals in the 90s finally prosecuted rape as an instrument of genocide that causes serious bodily or mental harm
+
+- ICTY and ICTR provided legal frameworks for acts of genocidal sexual violence. 
+
+## Post Genocidal Gendered Stigma
+- Survivors challenges after killing stops
+- Female survivors of sexual violence face additional social stigma or children born of rape.
+- While male survivors face extreme shame due to lack of "manhood"
+- In post war Bosnia the persistence of the belief that a childs ethnic identity was determined solely by yhe father led to the abuse of children born of rape.
+
+## Gendered Memory and Commemoration
+- observation that official memorials and public history is usually biased toward male experiences.
+- Memoral culture is in fact non gender neutral. it often uses motifs of female victimhood that can contribute to voyeurism or the sexual objectification of survivors while rendering the complex unofficial memories of both men and women invisible.
+- Courtroom testimonies in international trials have sometimes valorized or silenced women distorting their narratives to fit legal frameworks rather than their lived experiences. 
+- its like only reading one side of the story womens experiences are thrown under the bus
+
+## High level overview
+
+- Genocide as a term was coined by Lemkin in 1943 during the Holocaust. Genocide studies as a field did not truly become bigger until the late 1970s and 80s because of Holocaust studies. 
+- Gender became a part of things during 1980s when people started challenging this gender neutral narrative of the Holocaust. There was some hostility that was holding it back because some thought it might trivialize the crime however the reports of mass rape in Bosnia and Rwanda in the 90s forced the international community and academics to acknowledge that gender was a big component of genocide and should not be ignored. 
+- And now the field is expanding to include men in the field as gendered victims and the role of ideal masculinity in driving perpetrators like family protector and provider. and targeting those aspects to weaken a people. and now studies are focusing on the intersectionality og gender with race, religion and class. 
