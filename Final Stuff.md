@@ -467,9 +467,146 @@ However gendercide often serves as a first event to root and branch genocide whe
 - womnen have served as concentration camp guards, desk murderers and cheerleaders.
 - Like Pauline Nyiramasuhuko a Rwandan official who dirrected Hutu men to rape and butcher Tutsi Women.
 
+# Week 12 Pursuing Justice. 
 
+## Seeing Red 120 - 144 
+[Glen Sean Coulthard](https://static1.squarespace.com/static/5ad0d247af209613040b9ceb/t/5dffba8a27eac52da18efcd3/1577040525580/%5BCoulthard%2C_Glen_Sean%5D_Red_Skin%2C_White_Masks___Rej%28z-lib.org%29.pdf)
+
+
+### High Level Overview 
+- Crisis era - state faced an embarrassing loss of control as indeigenous militancy rose. with things like Legistaltive protest of Elijah Harper blocking the Meech Lake Accord, Oka Crisis where Mohawks defended sacred lands from golf course development basically state lost control of Indiegnous people.
+- Government moved to trying to manage the "Indian Problem"
+- First was the RCAP a 58 Million dollar commision to try and investigate the relationship between the Indigenous peoples and the state. 
+- The RCAP focuesd on healing rather than land restitution.
+- Instead of giving back land they were like nah
+- Then it moved to apologies in the modern era with PM Harper apologizing for Residential schools but framed them as "sad chapter" of the past 
+- Contradiction though because Harper later claimed Canada has no history of colonialism at the G20
+- And all of it is made worse by Bill C-45 which makes a lot of changes to Indian Act, Environmental Assessment Act and other federal legislation but TLDR it mnakes First Nations band Councils have an easier time leading out land with no community input or support and gutted environmental protections of lakes and rivers. 
+
+
+### Resentment as a moral feeling
+- Lot of resentment towards the state because of the states control over Native Lands.\
+
+### Settler Colonialism
+- Dissolution of Native societies to gain access to land for state formation and capitalist development. 
+- Persistence of extinguishment clauses in land claims requireing Indigenous peoples to surrender rights for benefits shows the structure is still active. 
+- Basically if you want benefits then you have to cede all claims to your identity as an Indigenous person.
+
+### Transitional Justice
+- framework used by states to move from history of bat shit crazy stuff and bad stuff to a democratic present
+- Does this by doing official apologies and forgiveness but the text in this case states that this is only after the stuff has passed for the colonial structure has not ended yet and persists on. 
+- 2008 residential school apology which used the language of moving on and new chapters to frame colonialism as being finished.
+
+### Internalized Colonialism
+- Based on Fanon's theories this is a psychological economic structure where the colonized start to see the colonizers as simply better and that being the natural thing
+- power through influence. If you believe it to be true you give your consent to be controlled by it. 
+- and because you believe it to be true you dont fight it
+- and the status of native is in conflict with the things they try to do because the environment makes them feel like an other and can never truly become part of it like a neurosis.
+
+### Ressentiment
+- backward looking passive psychological state that traps a person in their past injuries
+- Man of Ressentiment the state often used to describe Indigenous anger as an irrational inability to "Get Over it"
+- State officials label them as refusing to forgive
+
+### Politics of Recognition
+- State strategy that offers to accommodate cultural differences as a way to reconcile the colonial relationship
+- Sounds positive but limits Indigenous rights to cultural practices but not letting them have land ownership. 
+
+### Conceptual Revisionism 
+- act of framing colonial injustice as a past event to avoid addressing any of the shit today
+- state manufactures transition by allocating colonial abuses to the dustbins of history. "We cannot change the past lol so sucks to suck" is basically the tldr.
+- Stephen Harper's 2009 G20 address where he claimed Canadians had no history of colonialism.
+
+### Self-Affirmative Praxis
+- using your anger to stand up and fight for your rights.
+- Anger turns into action and it helps to stop listening to the bully and start feeling proud of their own culture
+- Like in the Idle No More movement where people used their outrate to organize protests and teach ins (Educational forum to raise awareness of social or political issues)
+
+### Reconciliation as "Consistency"
+- The whole goal of the government is to make it so indigenous rights dont interfere with their own power
+- So instead of meeting as equals they try to make them fit into Canadian laws
+- Supreme court saying indigenous rights have to be reconciled with the fact that the crown is in charge
+
+### Institutional Pacification ("Calm down")
+- Giving a small gift or an apology just to get people to stop protesting
+- When Indigenous people block roads or stop business the government offered a commission or a healing fund to make the protests stop
+- Creating the Royal Commission on Aboriginal Peoples (RCAP) only after the armed standoff at Oka
+- Only doing something after given a threat
+
+# Jones Genocide Justice Truth and Redress 646-678
+
+## Jus Cogens and Universal Jurisdiction 
+- Some crimes are so bad that any country has the right the perpetrator on trial
+- Jus Cogens refers to compelling laws recognized by the international community where no exceptions. This supports the principle of universal jurisdiction which allows a state to prosecute certain grave crimes even if they have no personal or territorial link to the offense. Basically you so bad i have to go across nations to punish them. 
+- Israel's 1961 prosecution of Nazi Leader Adolf Eichmann utilized this legal concept. 
+
+## Nuremberg Precedents
+- Trials after WW2 established that individuals not just states are responsible for genocide
+- Nuremberg established two revolutionary precedents Individual responsibility for crime and universal jurisdiction over crimes against humanity. 
+- Conviction of high ranking Nazis like Hermann Goring and the subsequent Einsatgruppen trial 
+- Basically made individuals responsible for shit. 
+
+## ICTY and ICTR
+- These tribunals tightened international law which was firdt to define rape as a form of genocide. 
+- Conviction of Radislav Krstic for Srebenica Massacre ruling that only killing the males is destroying the community. 
+- Tribunals were basically a pop-up shop.
+
+## International Criminal Court ICC
+- Established by the Rome Statute in 1998 in genocide, war crimes, and crimes against humanity. It operates on the principle of complementarity, meaning it only steps in if national mechanisms are incapable of handling the case. 
+- TLDR they come out if the nation itself cant handle the case
+- First Conviction was against Congolese warloard Thomas Lubanga in 2012 for war crimes
+
+## Mixed Hybrid Tribunals
+- Courts that blend local and international judges and laws to handle atrocities.
+- These were designed for homegrown justice while using international standards of fairness. They help when a local system is seen as too ramshackle or vulnerable to political control
+- TLDR use a mix of both local and international courts if they cant handle things by themselves. 
+
+## Gacaca Tribunals 
+- Community based grassroots justice system in Rwanda where neighbors judged neighbors to handle the massive backlog of genocide cases to many people 
+- Gacaca meaning a patch of grass used 260k elected lay judges.
+- focused on restorative justice offering reduced sentences to the confessed and asked for forgiveness. They wanted to reintegrate them into the community. 
+
+## Pinochet Precedent 
+- Case proved that even heads of state cant get away with this
+- Chilean Dictator Augusto Pinochet was arrested in London based on a warrant from Spain. British House of Lords ruled that diplomatic immunity does not protect a leader from the international community's concern over how they treated their own citizens. 
+- Case allowed Chile to later strip his immunity and put him under house arrest.
+
+## Truth and Reconciliation Commissions 
+- Non-trial bodies that focus on truth telling and healing rather than punishment
+- These are used to avoid destabilizing a fragile new peace with arduous trials. They provide victims a forum for catharsis by letting them share and create an official historical record to prevent future denials
+- TRC of Canada explored the cultural genocide of the Indian residential School system 
+- Instead of divorce court its family therapy
+
+## Redress and Reparations
+- Trying to make right of past injustices
+- Redress has 5 prerequisites: Documented Human Injustice, Identifiable victims, ongoing harm, and causal connection. Can be material or symbolic
+- Germany has paid over 80 billion Euros in reparations to Israel since WW2
+- Redress is more than saying sorry for breaking a window its also about paying to fix the glass and swearing to never repeat the behaviour
+
+## High Level Overview Evolution of Justice
+1. Post ww2 the world was horrified by Holocaust so the Nuremberg and Tokyo Trials established legal responsibility for Crimes Against Humanity. Raphael Lemkin lobbied for term Genocide which became a part of the UN convention
+2. During the Cold War international justice kinda stopped. Genocide used as a propaganda weapon but trials never happened because nations were scared of the whole but you did it to thing. The whole idea of sovereignity where what happens in Vegas stays in Vegas. 
+3. the 90s were the golden age for tribunals between the collapse of the Soviet Union and Horrific genocides in Yugoslavia and Rwanda forcing the UN to act they had to make Ad Hoc tribunals where these courts made huge legal leaps such as prosecuting heads of state and recognizeding sexual violence as a tool of genocide
+
+4. In the 2000's up the present tribunals were slightly unsustainable so there was the creation of ICC (Permanent Safety net court), Hybrid Courts (International and local like Gacaca), And Alternative Justice. Restorative Justice focusing on truth and a countries survival as opposed to a jail cell
+
+
+# Week 13 Memory, Legacy, Memorialization 620 - 639
+
+## High Level Overview The battle for the past
+1. Perpetrators want to forget and deny, they hide as much as they can and try to say they deserved it 
+
+2. Victims want to remember and get justice they tell the stories build museums and ask for apologies so the world knows the truth
+
+3. The new generations they are stuck in the middle they want to move on but often they are the ones whoe dig up the secrets of their paretns to try and make things right
+
+### Examples
+- Germany is gold standard because they build memorials and pay for its mistakes 
+- Japan is still struggiling with many leaders visiting a shrine that honors people who did bad things which makes neighboring countries angry like Korea.
+- Argentina is famous for having the biggest trials in the world to catch the people who made others disappear
+- Denial is dangerous because it leaves room for bad things to happen again in the future
 
 
 # Later Tasks for finishing:
 - [ ] Read the gender stuff from week 11 for more information. 
-- [ ] Future task 
+- [ ] Read Week 13 chapter for more information. 
