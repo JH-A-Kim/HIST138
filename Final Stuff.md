@@ -412,6 +412,62 @@ Why did the Belgians do this?
 - Gender became a part of things during 1980s when people started challenging this gender neutral narrative of the Holocaust. There was some hostility that was holding it back because some thought it might trivialize the crime however the reports of mass rape in Bosnia and Rwanda in the 90s forced the international community and academics to acknowledge that gender was a big component of genocide and should not be ignored. 
 - And now the field is expanding to include men in the field as gendered victims and the role of ideal masculinity in driving perpetrators like family protector and provider. and targeting those aspects to weaken a people. and now studies are focusing on the intersectionality og gender with race, religion and class. 
 
+# Week 11 Jones 585 - 608
+
+## High level overview:
+the dimension of gender cannot leave genocide. There is no such thing as a gender-neutral genocide. Gendered violence in genocide is about relationships, roles, and cultural expectations of the biological sex.
+
+Genocidal strategies often begin as gendercide with the starting of killing battle age males who are seen as military threats. In the early steps often men are the primary victims women are perceived as valuable as slaves or as a blank slate that dont really car the groups lineage in the patrilineal societies. IE they cannot carry their culture forward because they are women is the viewpoint.
+
+However gendercide often serves as a first event to root and branch genocide where the killing expands to include women children and the elderely to ensure the total disappearance of the group. Wenven when women are not the primary targets of mass murder they face their own problems like genocidal rape, which is used as a tool to destroy the social and biological fabric of the community. Finally the text challenges the innocent woman trope by showing the roles that women play as perpetrators, cheerleaders and administratorrs of these genocidal regimes
+
+## Gender vs Biological Sex
+- Gender is highly tied to the cultural roles that are assigned and is purely a social construct and they can be used as a platform of attack in many genocides
+- Biological sex is just the hardware of the body.
+- As such as the man is thought to be the protector and the only one who can stand up in the Srebenica massacre they killed 8000 muslim battle aged men and boys
+
+## Root And Branch Genocide
+- Campaign of total annihilation of like literally everybody
+- The term is gendered because the Root is in reference to the women who gives birth to the branch meaning the child. These Genocides go beyond the initial slaughter of men and to prevent future generations coming back to get revenge. 
+
+## Provocative Targets
+- These are groups perceived as strong so they are determined to be more legitamite targets of aggression
+- Aggression is viewed as less legitamate when the victim is perceived as weak. Because men are thought to be stronger they are therefore more likely to be singled out for atrocities and other things of that nature then women.
+- Like Nazi Reprisal policies where randomly chosen males were executed in response to resistance attacks. 
+
+## Genocidal Rape
+- Systematic use of sexual assault as a deliberate tool to destroy a targeted group
+- Mass rape used to humiliate inflict trauama, and physically destroy a groups ability to function or reproduce.
+- Rwandan Genocide where 250k to 500k women were raped accompanied by extreme mutilation and intentional spread of HIV
+
+## Inversion Rituals
+- Ritualized acts of cruelty targeting symbols of group reproduction and the emotional bonds of the family.
+- Forcing family members to harm one another and the desecration of reproductive organs or infants. The aim is to destroy their biological ability to bring children into the world. As well as destroy family bonds like crazy
+- For example the evisceration of pregnant women and the use of infants for target practice
+
+## There is also the Genocidal Institution
+- Social behavior that cause massive systematic, and discriminatory death tolls based on gender
+- for example China and one child policymaking it so many families would kill their daughters. 
+- Less direct murder more shifts in policy that shifted behavior
+
+## Genocidal Masculinity
+- Marginalized males reject the normal partriarchy and seek power through killing.
+- happens when men feel emasculated or frozen out of social order and so they react through violence. 
+- Bully logic
+
+
+## Gendered Propaganda.
+- Using gender roles and stereotypes to make people do things
+- Like for men it invovles calling them cowards if they refuse to kill or putting them up as protectors of women and children.
+- for women it invovled emphasizing their role as guardians of the home to make them perceive the out group as a threat.
+- For example the Nazi propaganda depicting the "Eterrnal Jew" as a sexual prredator threatening "Aryan" Female Vulnerability. 
+
+## Female Agency in Genocide
+- Women played parts in genocide as perpetrators and beneficiaries of genocide not just as victims
+- womnen have served as concentration camp guards, desk murderers and cheerleaders.
+- Like Pauline Nyiramasuhuko a Rwandan official who dirrected Hutu men to rape and butcher Tutsi Women.
+
+
 
 
 # Later Tasks for finishing:
